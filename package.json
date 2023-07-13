@@ -1,0 +1,15 @@
+{
+    "name": "the-list-makers-blueprint-a-comprehensive-guide-to-achieving-your-goals-with-effective-listing",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
