@@ -1,4 +1,4 @@
-Chapter 6: Building Support Systems
+Building Support Systems
 ===================================
 
 Building support systems is crucial for achieving your goals and maximizing success. In this chapter, we will explore strategies for creating a strong network of support that will provide guidance, motivation, and accountability throughout your journey.

@@ -1,4 +1,4 @@
-Chapter 7: Understanding the Impact of Procrastination and Distraction on Goal Achievement
+Understanding the Impact of Procrastination and Distraction on Goal Achievement
 ==========================================================================================
 
 In this chapter, we will explore the detrimental effects of procrastination and distraction on goal achievement. Understanding how these factors can hinder your progress will help you develop strategies to overcome them and stay focused on your goals.

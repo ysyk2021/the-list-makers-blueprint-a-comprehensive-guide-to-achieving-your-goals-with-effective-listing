@@ -1,4 +1,4 @@
-Chapter 6: Setting Goals for Personal Growth through Effective Listing
+Setting Goals for Personal Growth through Effective Listing
 ======================================================================
 
 In this chapter, we will delve into the powerful practice of setting goals for personal growth using effective listing techniques. By employing the principles of effective listing, you can define clear objectives, establish actionable steps, and track your progress on the path to personal growth and self-improvement.

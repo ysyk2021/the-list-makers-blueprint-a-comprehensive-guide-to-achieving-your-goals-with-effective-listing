@@ -1,4 +1,4 @@
-Chapter 5: Techniques for Prioritizing Tasks and Objectives
+Techniques for Prioritizing Tasks and Objectives
 ===========================================================
 
 In this chapter, we delve into various techniques for prioritizing tasks and objectives effectively. We explore practical methods that can help individuals streamline their to-do lists, focus their efforts on high-value activities, and achieve their goals with greater efficiency.

@@ -1,4 +1,4 @@
-Chapter 7: Techniques for Overcoming Procrastination and Distraction
+Techniques for Overcoming Procrastination and Distraction
 ====================================================================
 
 In this chapter, we will explore effective techniques to overcome procrastination and manage distractions. Procrastination and distractions are common barriers that hinder goal achievement and productivity. By implementing the strategies outlined in this chapter, you can develop a focused mindset, improve your time management skills, and ultimately enhance your ability to achieve your goals.

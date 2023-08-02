@@ -1,4 +1,4 @@
-Chapter 6: Using the Eisenhower Matrix
+Using the Eisenhower Matrix
 ======================================
 
 The Eisenhower Matrix, also known as the Urgent-Important Matrix, is a powerful productivity tool that helps individuals prioritize tasks and make efficient use of their time. Named after former U.S. President Dwight D. Eisenhower, who famously said, "What is important is seldom urgent, and what is urgent is seldom important," this matrix provides a framework for organizing tasks based on their urgency and importance. In this chapter, we will explore how to effectively utilize the Eisenhower Matrix to optimize goal achievement and enhance productivity.

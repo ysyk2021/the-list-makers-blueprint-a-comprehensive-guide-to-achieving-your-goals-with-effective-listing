@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 =====================================================
 
 In this chapter, we will explore techniques for developing a growth mindset, which is a key component in achieving your goals. Cultivating a growth mindset allows you to embrace challenges, persist in the face of setbacks, and continuously grow and improve.
