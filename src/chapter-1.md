@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to "The List Maker's Blueprint: A Comprehensive Guide to Achieving Your Goals with Effective Listing." In this book, we will explore the power of effective listing in achieving your goals and living a fulfilling life.
 

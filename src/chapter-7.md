@@ -1,5 +1,3 @@
-Chapter 6: Tracking Progress and Accountability
-===============================================
 
 Tracking progress and accountability are essential aspects of effective listing. They help you stay on track towards achieving your goals, provide motivation and accountability, and allow you to measure your progress. In this chapter, we will explore the role of tracking progress and accountability in goal achievement, techniques for tracking progress and holding yourself accountable, and building support systems.
 

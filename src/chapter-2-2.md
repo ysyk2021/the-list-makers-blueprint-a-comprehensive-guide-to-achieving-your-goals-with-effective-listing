@@ -1,5 +1,3 @@
-Types of Goals
-=========================
 
 In the journey towards achieving your goals, it is important to understand the different types of goals you can set. Each type serves a unique purpose and contributes to your overall success. In this chapter, we will explore various types of goals that can be effectively utilized on your path to accomplishment.
 

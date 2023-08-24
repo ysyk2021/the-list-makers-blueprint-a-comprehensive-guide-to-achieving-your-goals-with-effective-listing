@@ -1,5 +1,3 @@
-Setting Goals for Professional Growth through Effective Listing
-=============================================================================================================================
 
 Effective listing can be a powerful tool for setting and achieving professional growth goals. In this chapter, we will discuss how to use effective listing to set goals for professional growth and strategies for achieving those goals.
 

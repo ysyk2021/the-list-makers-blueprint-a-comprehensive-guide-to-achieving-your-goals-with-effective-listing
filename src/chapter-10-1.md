@@ -1,5 +1,3 @@
-Using Effective Listing for Career Development
-============================================================================================================
 
 Effective listing can be a powerful tool for professional growth and career development. In this chapter, we will discuss how to apply effective listing to your career goals and strategies for using lists to achieve professional success.
 

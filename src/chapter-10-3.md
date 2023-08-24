@@ -1,5 +1,3 @@
-Building Skills through Effective Listing
-=======================================================================================================
 
 Effective listing is not just a tool for personal growth, but also for professional development. In this chapter, we will explore how effective listing can be applied to building skills and achieving success in your career.
 

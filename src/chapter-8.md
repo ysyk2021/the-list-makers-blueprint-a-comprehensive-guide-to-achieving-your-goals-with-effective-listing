@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Procrastination and Distraction
-=====================================================
 
 Procrastination and distraction are two common obstacles that can hinder goal achievement. In this chapter, we will discuss the impact of procrastination and distraction on goal achievement, techniques for overcoming them, and building focus and productivity.
 

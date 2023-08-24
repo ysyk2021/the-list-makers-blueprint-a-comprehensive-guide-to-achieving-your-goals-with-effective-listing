@@ -1,5 +1,3 @@
-Chapter 1: Understanding Goal Setting
-=====================================
 
 Goal setting is a process of identifying what you want to achieve and creating a plan to get there. In this chapter, we will discuss what goal setting is, the different types of goals, and the benefits of effective goal setting.
 

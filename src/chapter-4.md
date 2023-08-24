@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness for Effective Listing
-========================================================
 
 Self-awareness is a crucial component of effective listing and goal achievement. In this chapter, we will discuss techniques for building self-awareness in relation to goal achievement, identifying your priorities and values, and building focus and concentration.
 

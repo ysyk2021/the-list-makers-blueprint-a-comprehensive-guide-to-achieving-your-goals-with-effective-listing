@@ -1,5 +1,3 @@
-Final Thoughts and Recommendations for Readers
-==========================================================
 
 In this book, we have explored the importance of effective goal setting and how it can help you achieve success in all areas of your life. We have discussed techniques for developing a growth mindset and strategies for overcoming obstacles to goal achievement.
 

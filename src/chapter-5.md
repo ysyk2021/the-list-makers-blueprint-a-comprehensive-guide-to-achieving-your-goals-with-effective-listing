@@ -1,5 +1,3 @@
-Chapter 4: Creating Effective Lists
-===================================
 
 Lists are a powerful tool for achieving your goals. In this chapter, we will discuss the importance of effective lists in goal achievement and techniques for creating them.
 

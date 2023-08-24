@@ -1,5 +1,3 @@
-Identifying Your Priorities and Values
-=================================================
 
 In this chapter, we will explore the importance of identifying your priorities and values when it comes to achieving your goals. Understanding what truly matters to you and aligning your actions with your core values is essential for creating a meaningful and fulfilling life. By identifying your priorities and values, you can make more informed decisions, set goals that are in alignment with who you are, and ultimately achieve greater success.
 

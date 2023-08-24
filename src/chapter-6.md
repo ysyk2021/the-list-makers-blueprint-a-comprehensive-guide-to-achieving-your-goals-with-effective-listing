@@ -1,5 +1,3 @@
-Chapter 5: Prioritizing Tasks and Objectives
-============================================
 
 Effective listing is not just about creating lists, but also prioritizing tasks and objectives. In this chapter, we will explore the impact of prioritization on goal achievement and techniques for prioritizing tasks and objectives.
 

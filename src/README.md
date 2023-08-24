@@ -1,4 +1,4 @@
-# Introduction
+
 
 Are you struggling to achieve your goals, feeling overwhelmed by your to-do list, and wondering how to get more done in less time? If so, "The List Maker's Blueprint: A Comprehensive Guide to Achieving Your Goals with Effective Listing" is the book you need.
 

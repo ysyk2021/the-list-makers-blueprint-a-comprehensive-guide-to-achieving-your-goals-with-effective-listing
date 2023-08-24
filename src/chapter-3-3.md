@@ -1,5 +1,3 @@
-Overcoming Obstacles to Goal Achievement
-=====================================================================================================
 
 Developing a growth mindset is essential for goal achievement. In this chapter, we will discuss the importance of a growth mindset and techniques for overcoming obstacles to achieve your goals.
 

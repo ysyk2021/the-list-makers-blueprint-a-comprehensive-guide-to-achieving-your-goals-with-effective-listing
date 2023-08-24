@@ -1,5 +1,3 @@
-The Ongoing Journey of Achieving Goals with Effective Listing
-=========================================================================
 
 In this book, we have explored the power of effective listing in achieving your goals. We have discussed the importance of setting clear and specific goals, developing a growth mindset, and using strategies to overcome obstacles.
 

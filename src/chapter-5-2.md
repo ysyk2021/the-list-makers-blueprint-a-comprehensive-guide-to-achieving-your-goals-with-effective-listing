@@ -1,5 +1,3 @@
-Techniques for Creating Effective Lists
-==================================================
 
 Creating effective lists is a powerful tool for achieving your goals efficiently and staying organized. In this chapter, we will explore various techniques to help you create well-structured and actionable lists that maximize productivity and enhance goal attainment.
 
