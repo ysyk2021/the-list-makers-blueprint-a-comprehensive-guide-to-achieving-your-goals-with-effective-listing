@@ -8,3 +8,7 @@ With a focus on prioritization, task management, and effective planning, "The Li
 Written by experienced professionals in the field of productivity and self-improvement, "The List Maker's Blueprint" is a must-read for anyone seeking to achieve their goals and live their best life. Whether you're looking to boost your career, improve your health and fitness, or pursue personal growth and development, this book provides the guidance and inspiration you need to succeed. So why wait? Pick up a copy today and start achieving your goals with effective listing!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
