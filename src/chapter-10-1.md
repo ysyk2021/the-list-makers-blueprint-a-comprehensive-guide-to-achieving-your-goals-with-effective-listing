@@ -1,5 +1,4 @@
-Chapter: Using Effective Listing for Career Development
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore how effective listing can be utilized as a powerful tool for career development. We delve into the ways in which creating and utilizing lists can enhance productivity, organization, and progress in one's professional journey. By harnessing the power of effective listing, readers will gain valuable insights and strategies to propel their career growth and achieve success.
 

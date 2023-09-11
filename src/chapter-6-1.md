@@ -1,5 +1,4 @@
-Chapter: The Impact of Prioritization on Goal Achievement
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the significant role that prioritization plays in achieving goals effectively. We delve into the importance of setting priorities, managing time, and focusing efforts on what truly matters. By understanding the power of prioritization, readers will gain insights and strategies to optimize their goal attainment journey.
 

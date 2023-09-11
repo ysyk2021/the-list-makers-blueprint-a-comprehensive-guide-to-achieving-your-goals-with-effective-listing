@@ -1,5 +1,4 @@
-Chapter: Building Skills Through Effective Listing
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the transformative power of effective listing in building skills and capabilities. We delve into how creating and utilizing lists can enhance productivity, organization, and personal growth. By embracing effective listing techniques, readers will unlock their potential to develop new skills and achieve success in various areas of life.
 
